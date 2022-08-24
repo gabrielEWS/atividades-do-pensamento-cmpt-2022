@@ -1,0 +1,1 @@
+# atividades-do-pensamento-cmpt-2022
